@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yansux
+- 👋 Hi, I’m @yan.franco
 - 👀 I’m interested in music, psychology, books and technology
 - 🌱 I’m currently learning sourcing and recruiting
 - 💞️ I’m looking to collaborate on ...
